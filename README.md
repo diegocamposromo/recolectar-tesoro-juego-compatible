@@ -1,0 +1,1 @@
+# recolectar-tesoro-juego-compatible
